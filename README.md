@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Davegraphics
+- 👋 Hi, I’m @Davegraphic
 - 👀 I’m interested in making Creative Designs
 - 🌱 I’m currently 
 - 💞️ I’m looking to collaborate on Making Project
